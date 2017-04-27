@@ -6,3 +6,4 @@
 4. J'ai faim comme si j'était un loup
 5. Il faut que je mange parce que je meurs de faim
 6. Il y a rien à manger, il y a que des légumes et des fruits et je veux de la viande! 
+7. J'ai envie de dormir ! 
