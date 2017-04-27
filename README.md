@@ -7,3 +7,5 @@
 5. Il faut que je mange parce que je meurs de faim
 6. Il y a rien à manger, il y a que des légumes et des fruits et je veux de la viande! 
 7. J'ai envie de dormir ! 
+8. tu n'as pas envie de jouer O footall??
+9. ou bien on va en club pour un party... 
